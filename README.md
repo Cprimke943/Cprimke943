@@ -1,4 +1,4 @@
-Hi! I'm Caspar Primke and I am currently a third year at the University of Gerogia!
+Hi! I'm Caspar Primke and I am currently a fourth year at the University of Gerogia!
 
 I am a computer science major who is up for any new challenge.
 I like to play video games, read books, workout, and play board games. 
